@@ -1,1 +1,1 @@
-# Craftopia--handmade-products-ecommerse-website
+# Craftopia--handmade-products-ecommerce-website
